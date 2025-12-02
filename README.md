@@ -17,3 +17,13 @@
 
 
 
+Посилання на роботи Шмакової Христини: 
+
+
+Репозиторій: https://github.com/Peneselin/peneselin-2025-lab8
+
+
+Сайт: https://peneselin.github.io/peneselin-2025-lab8/
+
+
+
